@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hecthor
+- 👀 I’m interested in html,css,javascript,python,sql,git,react and more things interesting
+- 🌱 I’m currently learning html,css
+- 💞️ I’m looking to collaborate on for now nothing
+- 📫 How to reach me seriously someone is watching this...
